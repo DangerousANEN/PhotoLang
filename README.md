@@ -1,5 +1,5 @@
 
-![Ico.png](https://i.postimg.cc/7ZR2Mj6m/Ico.png)
+![Ico3.png](https://i.postimg.cc/rsRNXWm2/Ico3.png)
 
 
 # Краткая характеристика
